@@ -1,1 +1,1 @@
-# assessment_for_microfinance_organization
+# Assessment for microfinance organization
